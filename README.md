@@ -1,0 +1,2 @@
+# buatkamusayangku
+buatkamu
